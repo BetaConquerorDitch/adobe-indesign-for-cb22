@@ -1,4 +1,4 @@
-
+Adobe InDesign for macOS updated Extension: layer styles & content-aware fill offers the most advanced Adobe InDesign for macOS extension, with layer styles and content-aware
 
 
 
